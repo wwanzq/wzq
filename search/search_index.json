@@ -1,1 +1,1 @@
-{"config":{"indexing":"full","lang":["en"],"min_search_length":3,"prebuild_index":false,"separator":"[\\s\\-]+"},"docs":[{"location":"","text":"aaaa bbbb Aaaaaa","title":"aaaa"},{"location":"#aaaa","text":"","title":"aaaa"},{"location":"#bbbb","text":"Aaaaaa","title":"bbbb"}]}
+{"config":{"lang":["en"],"separator":"[\\s\\-]+","pipeline":["stopWordFilter"]},"docs":[{"location":"","title":"aaaa","text":""},{"location":"#bbbb","title":"bbbb","text":"<p>Aaaaaa</p>"}]}
