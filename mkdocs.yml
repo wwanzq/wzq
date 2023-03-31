@@ -1,1 +1,3 @@
 site_name: wzq
+theme:
+  name: material
