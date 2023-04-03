@@ -1,3 +1,18 @@
-site_name: wzq
+site_name: Photo Dairy
 theme:
   name: material
+  palette:
+    primary: teal
+    accent: teal
+  font:
+    text: Open Sans
+extra:
+  alternate:
+    - name: Chinese
+      link: /zh/ 
+      lang: zh
+    - name: English
+      link: /en/
+      lang: en
+
+
