@@ -1,59 +1,75 @@
-# How can I embrace the whole spring?
+# How can I describe you?
 
-> Location：Zhejiang University Zijingang Campus, Date: 2023.3.14
+> Location：Dadou Road, Hangzhou; Date: 2023.4.8
 
-#### “为一个突然的摄影课作业 偶遇了紫金港一整个春天”
-
-这学期选了门摄影课，希望给压力满满的大三下生活增加一点乐趣，也想在毕业前赶趟末班车，多学习一点感兴趣的内容、上一些自己想上的好课。
-
-前一天晚上老师刚布置了作业，给一周时间拍摄校园的春色。第二天早上还在构思拍什么，本想拖延几天再动身，却刷到天气，发现今天居然是本周唯一的晴天，心想时不我待，话不多说，立马出发！
-
-前几日的杭州还在阴雨天气中郁郁寡欢，今天的景色却让人连连感慨：“这就是杭州的春天吗”，没有刻意的安排，只是心念的流动把我推向了这片限定的春光，感觉很幸福。<br>
+<h4><center><br>
+  该怎么形容你<br>
+  汩汩的绿意<br>
+  晃人的风情</center></h4>
+这两周兴许是杭州天气最好的日子，温度惬意，阳光柔软。恰好摄影班里约了采风活动，最近虽然很忙，忙着赶方案、忙着做项目、忙着参与张罗各种活动，但也还是留出了时间参与了半程，没有跟着大部队，但是也收获颇丰！<br>
 
 
 
 <center><i><br>
 Section 1<br>
-西教大草坪<br>
-阳光、草木和天空浓淡相宜</center></i>
+绿色的 欢快的<br>
+我看到叶子在跳舞</center></i>
 
-[![pphvIER.jpg](https://s1.ax1x.com/2023/04/03/pphvIER.jpg)](https://imgse.com/i/pphvIER)
-
-<center><i><br>
-隔岸的柳枝为楼宇献上鲜花</center></i>
-
-[![pphvk7R.jpg](https://s1.ax1x.com/2023/04/03/pphvk7R.jpg)](https://imgse.com/i/pphvk7R)
+[![ppqsIpj.jpg](https://s1.ax1x.com/2023/04/10/ppqsIpj.jpg)](https://imgse.com/i/ppqsIpj)
 
 <center><i><br>
-春日好读书</center></i>
-[![pp4P0zt.jpg](https://s1.ax1x.com/2023/04/03/pp4P0zt.jpg)](https://imgse.com/i/pp4P0zt)
+人在绿意前是渺小而敬畏的</center></i>
+
+![ppqym3d.md.jpg](https://s1.ax1x.com/2023/04/10/ppqym3d.md.jpg)
 
 <center><i><br>
-我感知到幸福的眩光</center></i>
+春枝是河岸的流苏</center></i>
 
-<figure markdown><img src="https://s1.ax1x.com/2023/04/03/pphv9cF.jpg" alt="pphv9cF.jpg"></figure>
+[![ppqye9H.jpg](https://s1.ax1x.com/2023/04/10/ppqye9H.jpg)](https://imgse.com/i/ppqye9H)
+
+<center><i><br>
+绿色是幸福到眩晕的</center></i>
+
+[![ppqyngA.jpg](https://s1.ax1x.com/2023/04/10/ppqyngA.jpg)](https://imgse.com/i/ppqyngA)
 
 <center><i><br>
 Section 2<br>
-大西区的早樱<br>
-阳光把朵朵樱花照得透亮</center></i>
+巷子里的人和物<br>
+醇厚的杭州味道</center></i>
 
-[![pphvSpT.jpg](https://s1.ax1x.com/2023/04/03/pphvSpT.jpg)](https://imgse.com/i/pphvSpT)
-
-[![pphjxhV.jpg](https://s1.ax1x.com/2023/04/03/pphjxhV.jpg)](https://imgse.com/i/pphjxhV)
+[![ppqy2vR.jpg](https://s1.ax1x.com/2023/04/10/ppqy2vR.jpg)](https://imgse.com/i/ppqy2vR)
 
 <center><i><br>
-她们在恣意地飞扬<br>
-我的心也得到了舒展</center></i>
+女人</center></i>
 
-[![pphvp1U.jpg](https://s1.ax1x.com/2023/04/03/pphvp1U.jpg)](https://imgse.com/i/pphvp1U)
+[![ppqyV4e.jpg](https://s1.ax1x.com/2023/04/10/ppqyV4e.jpg)](https://imgse.com/i/ppqyV4e)
+
+[![ppqyWK1.jpg](https://s1.ax1x.com/2023/04/10/ppqyWK1.jpg)](https://imgse.com/i/ppqyWK1)
 
 <center><i><br>
 Section 3<br>
-北教附近<br>
-重构与新生</center></i>
+其他美</center></i>
 
-[![pp4Cn3t.jpg](https://s1.ax1x.com/2023/04/03/pp4Cn3t.jpg)](https://imgse.com/i/pp4Cn3t)
+<center><i><br>
+路边施工的别有新意的围栏<br>
+感觉像露天展览！</center></i>
 
-这是我能用相机记录并从心感知的所有幸福。
+[![ppqyFHK.jpg](https://s1.ax1x.com/2023/04/10/ppqyFHK.jpg)](https://imgse.com/i/ppqyFHK)
 
+<center><i><br>
+是夏天吗？</center></i>
+
+[![ppqyfDx.jpg](https://s1.ax1x.com/2023/04/10/ppqyfDx.jpg)](https://imgse.com/i/ppqyfDx)
+
+<center><i><br>
+啊 是我</center></i>
+
+[![ppqcVld.jpg](https://s1.ax1x.com/2023/04/10/ppqcVld.jpg)](https://imgse.com/i/ppqcVld)
+
+照片出自刘摄影师之手 夸赞一下！
+
+镜头加持下更上道了！
+
+&今天是lmx的生日
+
+祝他生日快乐🎂8⃣️！
